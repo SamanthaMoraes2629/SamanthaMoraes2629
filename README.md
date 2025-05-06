@@ -52,4 +52,3 @@
 ### 💡 Frase favorita
 
 > *“Faça da sua vida mais "Responsivo.”*  
-> – E se não for pra conquistar, pra que você acha que eu me esforço tanto?
